@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hamimbadsha
-- 👀 I’m interested in ... cyber seicurity
+- 👀 I’m interested in ... cyber security
 - 🌱 I’m currently learning ... python + html
 - 💞️ I’m looking to collaborate on ... cyber seicurity related projects
 - 📫 How to reach me ... hamimbadsha51@gmail.com ,, or  https://www.facebook.com/hamim.badsha.12
